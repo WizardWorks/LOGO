@@ -1,0 +1,2 @@
+
+![](jpg/rule.jpg)
